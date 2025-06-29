@@ -1,3 +1,7 @@
+any distribution or reproduction without the permission of the owner will not be appreciated 
+
+
+
 Scholario – The Ultimate Learning Companion 🚀
 Scholario is an innovative educational platform designed to empower students with structured learning resources, expert guidance, and AI-powered doubt resolution. Whether you're struggling with a tricky math problem or searching for the best study materials, Scholario is here to help!
 What Scholario Offers:
